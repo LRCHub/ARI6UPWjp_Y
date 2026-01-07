@@ -1,0 +1,89 @@
+# May J. – Garden feat. DJ KAORI,Diggy-MO',クレンチ&ブリスタ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+さあ みんなここに愛の庭に
+終わりのない闇を抜けて
+名も無い花に雲は語る
+さあ みんなここで
+感じたままで Yeah
+Up above,where the big blue skys
+But Somebody
+make you lonely sometimes
+But it'll be alright
+It'll be alright
+Over bridges and sighs
+今を満たす 日差しに抱かれて
+La-la あの唄が 囁いている
+Oh あの空に蒔いた悲しみは
+遠く花になるでしょう
+Oh Yeah それは未来へと
+歩いてゆく道を照らし出す
+照らし出す
+One Love
+悲しみもやがて
+喜びに変えていけるように
+One Peace
+風と水と陽が会話
+イメージ 手と手の輪
+そう 穏やかな 日溜りの庭で
+あの夢をまた語り合いましょう
+いつか胸に抱いた喜びは
+冷たい涙溶かすでしょう
+Oh Yeah それは明日へと
+流れてゆく河となるから
+さあ みんなここに愛の庭に
+終わりのない闇を抜けて
+名も無い花に雲は語る
+さあ みんなここで
+感じたままで Yeah
+瞳の色も 肌の色も
+ここじゃ関係ないよ 何もかも
+ただ深く深く 結びつく そう
+ここは陽のあたる場所 right?
+幾千もの 光浴びながら
+La-la あの唄を奏で合おうよ Oh Oh
+yo 手のなるほう
+そうさ 手のなるほう
+耳澄ましな 10年後 今も尚
+花は咲き 鳥歌う
+メロディー オレンジ色
+愛のバトンを回そう
+Guess who's back!
+ため息と怒りを今ここで捨て
+I want to be free,
+キミの手を取り 空 仰ぐ
+また世界中のどこかで産声が轟く
+Stand up in the crowd
+試してみな when you come around
+タフな Life 時間かけろ
+Feel the right sound
+崩れ易く So 不安定な空
+引き裂いて Apply
+the mind to find it
+Don't turn around
+Liberty A song for liberty
+Just set you free
+さあ 歌えよ未だ見ぬ君
+描け Visualize a beautiful name
+探してるSomebody夢旅人のようにSo
+空に舞い上がる 大きな羽を心に
+はるかな大地を
+あなたと越えてゆけたら
+さあ みんなここに愛の庭に
+終わりのない闇を抜けて
+名も無い花と風は踊る
+さあ みんなここで感じたままで
+さあ みんなここに愛の庭に
+終わりのない 命の灯よ
+名もない花と雲は語る
+さあ みんなここで
+感じたままで Yeah
+Up above,where the big blue skys
+But Somebody
+make you lonely sometimes
+But it'll be alright
+It'll be alright
+Over bridges and sighs
+```
