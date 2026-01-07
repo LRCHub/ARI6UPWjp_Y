@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Garden feat. DJ KAORI,Diggy-MO',クレンチ&ブリスタ",
+  "base_artist": "May J.",
+  "createdAt": "2026-01-07T17:22:22.153357Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Garden feat.DJ KAORI,Diggy-MO',クレンチ&ブリスタ",
+      "artist": "May J.",
+      "has_synced": false,
+      "path": "select/pl_01_Garden_feat.DJ_KAORI,Diggy-MO',クレンチ&ブリスタ_May_J..txt"
+    }
+  ]
+}
